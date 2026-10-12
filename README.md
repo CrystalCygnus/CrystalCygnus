@@ -12,4 +12,4 @@
 - Second year college student for Computer Science 
 - I don't actually know what to put here I just wanted to make ascii art :p
 - Call me either Tækk or Cygnus :3
-- She/They/It pronouns
+- She/It pronouns
